@@ -1,5 +1,5 @@
 # 💫 About Me:
-Muhammad shayan<br><br>📞 03219370937<br>📧 m.shayan12394@gmail.com<br>🔗 Portfolio  LinkedIn:(https://www.linkedin.com/in/shayan-khan-525958304?utm_source=share_via&utm_content=profile&utm_medium=member_android)<br>🔗 Instagram:https://www.instagram.com/amirhamza15166/#<br>🔗 Github:https://github.com/M-shayan-prog/M-shayan-prog
+Muhammad shayan<br><br>📞 03219370937<br>📧 m.shayan12394@gmail.com<br>🔗 Portfolio  LinkedIn:(https://www.linkedin.com/in/shayan-khan-525958304?utm_source=share_via&utm_content=profile&utm_medium=member_android)<br>🔗 (https://www.instagram.com/muhammad_shayan_153?igsh=cTNiMXR2eXFxZGFw)<br>🔗 Github:https://github.com/M-shayan-prog/M-shayan-prog
 
 
 ## 🌐 Socials:
